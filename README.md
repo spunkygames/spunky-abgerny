@@ -1,6 +1,6 @@
 # Spunky Abgerny
 
-Prepare for a mind-bending puzzle experience with Spunky Abgerny! This challenging and innovative game from [Spunky Game](https://spunky.games) will test your logic and problem-solving skills. Manipulate intricate shapes and navigate complex mazes in this captivating and addictive puzzle adventure. Play Spunky Abgerny Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
+Prepare for a mind-bending puzzle experience with Spunky Abgerny! This challenging and innovative game from [Spunky Game](https://spunky.games) will test your logic and problem-solving skills. Manipulate intricate shapes and navigate complex mazes in this captivating and addictive puzzle adventure. Play Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
 
 ---
 
@@ -50,7 +50,7 @@ Spunky Abgerny is a unique puzzle game developed by [Spunky Game](https://spunky
 
 ## Frequently Asked Questions (FAQ) <a name="faq"></a>
 
-1. **Q: How do I start playing Spunky Abgerny?** A:  Play Spunky Abgerny Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
+1. **Q: How do I start playing Spunky Abgerny?** A:  Play Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
 2. **Q: What is the objective of the game?** A: Solve puzzles by manipulating shapes and navigating mazes.
 3. **Q: How do I control the shapes?** A:  The specific controls will be explained within the game tutorial.
 4. **Q: What happens if I get stuck on a puzzle?** A: Hints and clues may be available to assist you.
@@ -65,4 +65,4 @@ Spunky Abgerny is a unique puzzle game developed by [Spunky Game](https://spunky
 
 ---
 
-Ready to challenge your mind? Play Spunky Abgerny Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
+Ready to challenge your mind? Play Now:[spunky-abgerny](https://spunky.games/spunky-abgerny)
